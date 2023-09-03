@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **as120582.shreyanshuraj@gmail.com**
 
-- ⚡ Fun fact **Damnn!**
+- 🏛 **BIT Mesra,Ranchi**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
